@@ -1,5 +1,5 @@
 # 💫 About Me:
-Working on Coding and Programing<br>Learning languages which are used in multiple things.<br><br>
+Working on Coding and Programing<br>Learning languages which are used in multiple things as well have a lot of intrest in ML and cyber security.<br><br>
 
 
 ## 🌐 Socials:
